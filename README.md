@@ -12,6 +12,8 @@ Materiał na youtube: https://www.youtube.com/watch?v=yTaDeAVQkyM
 
 Artykuł: https://dnarynkow.pl/kupowac-akcje-razem-z-prezesami-sprawdzilismy-35-mln-ich-transakcji/
 
+________________________________________
+
 **Opis problemu**:
 
 Jeżeli ktoś ma przewagę informacyjną nad rynkiem, to właśnie osoby zarządzające spółką. Prezesi i członkowie zarządów najlepiej znają sytuację swojej firmy, jej perspektywy oraz ryzyka. Gdy kupują akcje za własne pieniądze, intuicja podpowiada, że powinien być to wartościowy sygnał inwestycyjny. Czy rzeczywiście tak jest? Sprawdzono między innymi:
