@@ -9,6 +9,7 @@ Czy warto kupować akcje razem z insiderami?</b>
 ________________________________________
 
 Materiał na youtube: https://www.youtube.com/watch?v=yTaDeAVQkyM
+
 Artykuł: https://dnarynkow.pl/kupowac-akcje-razem-z-prezesami-sprawdzilismy-35-mln-ich-transakcji/
 
 **Opis problemu**:
